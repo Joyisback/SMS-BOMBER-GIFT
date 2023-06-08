@@ -5,6 +5,6 @@
 
 * PROJECT LINK 🖇️
 
-Version 1.1 <ahref="https://apkadmin.com/wl6rrt6hvh87/ALEX_BOMBER_v1.0___40_com.bomber.ax__1__41__2023-06-08T104920.7z.html
+https://apkadmin.com/wl6rrt6hvh87/ALEX_BOMBER_v1.0___40_com.bomber.ax__1__41__2023-06-08T104920.7z.html
 
-"target=_blank> DOWNLOAD </a>
+
